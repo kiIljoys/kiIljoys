@@ -2,6 +2,7 @@
   <summary>ABOUT</summary>
 hi!!!! you can call me party or anything you want :]<br>
   they/it + 19 + tneu + lesbian + disabled + taken!!!!<br>
+  you can c+h or play with me any time :333 
 </details>
 
 <img src="https://64.media.tumblr.com/5d6bcc834db5ec27df96b230163290c2/607cf1ed369c08b7-31/s500x750/a0fe2bddec232f35364e1d9e339569aa2e7d3185.pnj">
